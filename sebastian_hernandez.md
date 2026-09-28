@@ -1,0 +1,1 @@
+I believe that my brand archetype would be Caretaker because I would be the type to be giving to others, and that in most cases I would want my brand to have a charitable environment towards others.

@@ -1,0 +1,1 @@
+Personally my architype is the Magician. They're someone who "lives in a gap between how things are and how they could be" it represents my current view with Artifical Intelligence which is right now something completly questionable on whether it's good or not, but could be something more if coded more properly.
